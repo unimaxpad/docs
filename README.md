@@ -22,7 +22,11 @@ Investors get benefited through IDO Allocations in Public & Private Rounds, Stak
 To create an avenue for Web 3.0 projects and provide resources to support their development empowered by our Technical expertise and strong partner network. With the capability of Multi-Chain Network Integration (MCNI), Unimaxpad will create a micro-ecosystem that will help induct the world into the development and use of the Web 3.0 Applications through Operational Transparency, Utility convergence, Strong Community Support & Innovation.
 
 Website : https://unimaxpad.com
+
 Telegram Chat : https://t.me/unimaxpad
+
 Telegram ANN : https://t.me/unimaxpad_announcement
+
 Twitter : https://twitter.com/unimaxpad
+
 Medium : https://unimaxpad.medium.com
